@@ -4,3 +4,4 @@ Olá ! Bem vindo ao meu livros de receitas :wave:
 
 - Strogonofff de Frango
 - Strogonoff de Carne
+- Macarrão com Carne Moida
