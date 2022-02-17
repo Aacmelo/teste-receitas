@@ -6,3 +6,4 @@ Olá ! Bem vindo ao meu livros de receitas :wave:
 - Strogonoff de Carne
 - Macarrão com Carne Moida
 - Macarrão com Queijo
+- Arroz de Carreteiro
