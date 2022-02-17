@@ -12,7 +12,7 @@
 - Champignon
 - Batata palha e arroz branco para acompanhar
 
-**Modo de Preparoo**
+**Modo de Preparo**
 
 - Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha e dissolva o caldo. Logo em seguida coloque o frango picado em cubos na panela e deixa cozinhar, sempre dando uma olhada para não queimar.
 
